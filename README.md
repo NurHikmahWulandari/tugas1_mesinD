@@ -1,1 +1,2 @@
-# tugas1_mesinD
+# E1E121082
+# NUR HIKMAH WULANDARI
